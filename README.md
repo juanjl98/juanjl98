@@ -1,0 +1,1 @@
+Ingeniero informático (en construcción), interesado en las nuevas tecnologías enfocadas al Cloud Computing y el despliegue de servicios. Me considero un entusiasta del aprendizaje a través de proyectos y a través de la cooperación.
